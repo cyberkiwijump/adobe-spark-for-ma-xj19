@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Spark for macOS with ultimate Adobe Spark for macOS Utility | audio-sync + retouch-tools, the #1 utility. Includes audio-sync and retouch-tools for a smoother and
 
 
 
